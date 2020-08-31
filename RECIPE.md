@@ -1,0 +1,1 @@
+# Pour the mango juice into the cup and put the popsicle stick inside the cup with the juice. Then let it freeze overnigth and take it out of the cup in the morning.
